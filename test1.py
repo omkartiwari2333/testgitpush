@@ -8,4 +8,12 @@ vxc
 fb
 fb
 fb
-fbr
+fbrdfdfbdfb
+b
+v
+
+gd
+fg
+ngh
+nnn
+not not n
